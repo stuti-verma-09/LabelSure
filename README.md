@@ -1,4 +1,4 @@
-# LabelSure
+# LabelSure✅
 
 ### AI-Powered Legal Metrology Compliance Ecosystem
 
